@@ -1,2 +1,23 @@
 # Ancient-Languages
 Books for learning ancient languages
+
+# Latin
+
+## Under Consideration
+Learning Latin the Ancient Way: Latin Textbooks from the Ancient World (2012)
+The Revised Latin Primer
+Lingua Latina
+
+# Greek
+
+# Sanskrit
+
+## Under Consideration
+
+Introduction to Sanskrit I & II (Thomas Egenes)
+
+# Tamil
+
+# Hebrew
+
+# Arabic
